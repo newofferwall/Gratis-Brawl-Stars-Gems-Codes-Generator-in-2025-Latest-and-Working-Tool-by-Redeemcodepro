@@ -1,8 +1,6 @@
 # Gratis-Brawl-Stars-Gems-Codes-Generator-in-2025-Latest-and-Working-Tool-by-Redeemcodepro
 # Brawl Stars Reward Companion
 
-A collection of **safe methods** to earn in-game resources without risking your account.
-
 ⚠️ **Notice:** This repository does not contain cheats, hacks, or generators. We only document legitimate reward systems.
 
 ## Recommended Methods
